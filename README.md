@@ -1,2 +1,2 @@
 # -newvid
-https://www.youtube.com/watch?v=8zS6eBNVCVo&t=122s
+https://www.youtube.com/channel/UCYHJ7fQ6FtJyx3YxSWwOhHg
